@@ -34,7 +34,7 @@ Busco oportunidades para atuar como **Desenvolvedor Back-end**, contribuindo em 
 ## 📫 Entre em Contato
 
 - Email: joelsantos4511@gmail.com
-- LinkedIn: [[linkedin.com/in/joelsantosdev](https://www.linkedin.com/in/joelsantosdeveloper/)]([https://linkedin.com/in/joelsantosdev](https://www.linkedin.com/in/joelsantosdeveloper/)) 
+- LinkedIn:(https://www.linkedin.com/in/joelsantosdeveloper/)
 
 ---
 
